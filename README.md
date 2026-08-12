@@ -1,0 +1,1 @@
+# mining-permitting-directory
